@@ -2,7 +2,7 @@
 ![신발2](https://github.com/user-attachments/assets/64c8350f-cc1e-4cba-8725-cc40a24c78cb)
 ![머리2](https://github.com/user-attachments/assets/76ab1afd-ecf2-4a36-a2af-cb04a52ddda8)
 
-![머리1](https://github.com/user-attachments/assets/8aca13a0-de54-4053-99f1-eb
+https://github.com/user-attachments/assets/611af006-708c-4c6a-9d6e-67b8b2d1cc60
 ![몸](https://github.com/user-attachments/assets/8d1acacd-7913-488a-879f-8d133089323a)
 ![상의1](https://github.com/user-attachments/assets/7ddc844d-0fd0-4ab4-80f0-2169809ca010)
 ![상의2](https://github.com/user-attachments/assets/99afd5e2-4dc6-427b-804e-1f683d3f139b)
