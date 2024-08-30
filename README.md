@@ -1,6 +1,6 @@
 ![몸](https://github.com/user-attachments/assets/c9c0d392-95a3-4410-9ebf-a9cb8bef28c4)
 ![머리1](https://github.com/user-attachments/assets/83960458-6381-48e1-a5a3-375ae09148e0)
-![신발2](https://github.com/user-attachments/assets/d06dadc8-71fe-4a50-a902-a3d18c464a01)
+https://github.com/user-attachments/assets/04f5760d-0787-449a-a72d-3ea25937ed57
 ![하의1](https://github.com/user-attachments/assets/c8af537a-34e3-4278-a9df-711d3980150e)
 ![하의3](https://github.com/user-attachments/assets/4bb8e55e-71a7-41ee-b107-1ebae9fa80f1)
 ![가디건](https://github.com/user-attachments/assets/f7724a86-bd06-44e3-b1a5-18d984781b9c)
