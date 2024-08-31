@@ -13,3 +13,5 @@ https://github.com/user-attachments/assets/611af006-708c-4c6a-9d6e-67b8b2d1cc609
 ![하의1](https://github.com/user-attachments/assets/b2947786-5b92-4400-9629-1504193dd31d)
 ![하의3](https://github.com/user-attachments/assets/11081446-9d4c-4f4b-8d34-90f9be370244)
 ![신발1](https://github.com/user-attachments/assets/ad41477e-dc8c-4419-85dc-0ba596a774e2)
+
+![배경](https://github.com/user-attachments/assets/d26390de-d061-464e-9958-637dae714768)
