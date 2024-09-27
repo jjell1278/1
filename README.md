@@ -20,9 +20,10 @@ https://github.com/user-attachments/assets/611af006-708c-4c6a-9d6e-67b8b2d1cc609
 ![새싹](https://github.com/user-attachments/assets/6f993bbe-ed71-4163-92f2-2a1ec88f0789)
 ![꽃2](https://github.com/user-attachments/assets/891631e4-fed0-4fde-b622-e9d4f34c83aa)
 
-![버튼_리셋](https://github.com/user-attachments/assets/2082ab63-5bbe-4867-a045-74f3b33688ab)
-![버튼_세트](https://github.com/user-attachments/assets/af58dd5d-8a4e-47b4-874b-12666d230fac)
-![버튼_리셋(마우스)](https://github.com/user-attachments/assets/fb3fe696-ebf2-4dec-bb30-5a9d6d31e4ac)
-![버튼_세트(마우스)](https://github.com/user-attachments/assets/47f828b1-c3a0-4efb-8acd-e08bc836438d)
+![버튼_세트](https://github.com/user-attachments/assets/1c6914f1-74b6-463e-ab6c-634de2be6377)
+![버튼_리셋(마우스)](https://github.com/user-attachments/assets/c6e32709-bb35-49c0-b524-4a1c866ca410)
+![버튼_리셋](https://github.com/user-attachments/assets/9f2bfeed-fada-4aee-a6da-df1ed9038f59)
+![버튼_세트(마우스)](https://github.com/user-attachments/assets/58c37996-bf9f-4fe8-a066-e2e37932b682)
+
 
 ![꽃2](https://github.com/user-attachments/assets/63573cdc-7f14-410b-8fd5-643442e54e22)
