@@ -19,3 +19,6 @@ https://github.com/user-attachments/assets/611af006-708c-4c6a-9d6e-67b8b2d1cc609
 
 ![새싹](https://github.com/user-attachments/assets/6f993bbe-ed71-4163-92f2-2a1ec88f0789)
 ![꽃2](https://github.com/user-attachments/assets/891631e4-fed0-4fde-b622-e9d4f34c83aa)
+
+![버튼_리셋](https://github.com/user-attachments/assets/2082ab63-5bbe-4867-a045-74f3b33688ab)
+![버튼_세트](https://github.com/user-attachments/assets/af58dd5d-8a4e-47b4-874b-12666d230fac)
