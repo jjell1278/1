@@ -22,3 +22,6 @@ https://github.com/user-attachments/assets/611af006-708c-4c6a-9d6e-67b8b2d1cc609
 
 ![버튼_리셋](https://github.com/user-attachments/assets/2082ab63-5bbe-4867-a045-74f3b33688ab)
 ![버튼_세트](https://github.com/user-attachments/assets/af58dd5d-8a4e-47b4-874b-12666d230fac)
+![버튼_리셋(마우스)](https://github.com/user-attachments/assets/fb3fe696-ebf2-4dec-bb30-5a9d6d31e4ac)
+![버튼_세트(마우스)](https://github.com/user-attachments/assets/47f828b1-c3a0-4efb-8acd-e08bc836438d)
+
