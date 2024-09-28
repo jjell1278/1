@@ -1,1 +1,11 @@
-
+![하의1](https://github.com/user-attachments/assets/da945c8e-df6d-4381-bbf5-b6775be87efe)
+![귀걸이](https://github.com/user-attachments/assets/851b00ec-1ac3-4ef6-b4e6-bba1e6333ccc)
+![드레스](https://github.com/user-attachments/assets/f85df0e2-49f0-4284-bdb7-901834fc0197)
+![머리2](https://github.com/user-attachments/assets/d007116a-2104-40ba-8fdf-16a487b82d42)
+![머리장식1](https://github.com/user-attachments/assets/4674233a-4f2b-4006-8cae-c0fb10f22890)
+![몸](https://github.com/user-attachments/assets/1af8d48a-1b55-45e1-9d42-ee398da96cde)
+![병](https://github.com/user-attachments/assets/360deaa1-8489-4fcc-bf2c-81eaf4db67c3)
+![뿔](https://github.com/user-attachments/assets/16db0c90-c1e0-4886-b1b2-30edcf432aa2)
+![상의1](https://github.com/user-attachments/assets/9f9fa679-b13b-4723-a9de-dba03785b073)
+![신발1](https://github.com/user-attachments/assets/be66d10a-4708-42ed-b552-beaef17e8a53)
+![신발2](https://github.com/user-attachments/assets/f30d7715-d493-4264-b3a9-b184ccea2ac4)
