@@ -9,3 +9,4 @@
 ![상의1](https://github.com/user-attachments/assets/9f9fa679-b13b-4723-a9de-dba03785b073)
 ![신발1](https://github.com/user-attachments/assets/be66d10a-4708-42ed-b552-beaef17e8a53)
 ![신발2](https://github.com/user-attachments/assets/f30d7715-d493-4264-b3a9-b184ccea2ac4)
+![머리1](https://github.com/user-attachments/assets/120ff86e-e926-4de3-bf90-22f65d49af93)
