@@ -11,3 +11,6 @@
 ![신발2](https://github.com/user-attachments/assets/f30d7715-d493-4264-b3a9-b184ccea2ac4)
 ![머리1](https://github.com/user-attachments/assets/120ff86e-e926-4de3-bf90-22f65d49af93)
 ![배경](https://github.com/user-attachments/assets/3a1dd126-058c-41ab-95b3-f0d6e0a090bd)
+
+![버튼_안내(마우스)](https://github.com/user-attachments/assets/51d7682a-cb28-4494-ae13-90f3e9ba0ed4)
+![버튼_안내](https://github.com/user-attachments/assets/b0cfab7d-2445-4c9e-87fd-012b93fd9616)
