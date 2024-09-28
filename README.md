@@ -14,3 +14,4 @@
 
 ![버튼_안내(마우스)](https://github.com/user-attachments/assets/51d7682a-cb28-4494-ae13-90f3e9ba0ed4)
 ![버튼_안내](https://github.com/user-attachments/assets/b0cfab7d-2445-4c9e-87fd-012b93fd9616)
+![설명서](https://github.com/user-attachments/assets/48609f22-a7e3-4d0b-8070-a955eb84bdd7)
