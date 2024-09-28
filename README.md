@@ -17,8 +17,6 @@ https://github.com/user-attachments/assets/611af006-708c-4c6a-9d6e-67b8b2d1cc609
 ![배경](https://github.com/user-attachments/assets/d26390de-d061-464e-9958-637dae714768)
 
 
-![새싹](https://github.com/user-attachments/assets/6f993bbe-ed71-4163-92f2-2a1ec88f0789)
-![꽃2](https://github.com/user-attachments/assets/891631e4-fed0-4fde-b622-e9d4f34c83aa)
 
 ![버튼_세트](https://github.com/user-attachments/assets/1c6914f1-74b6-463e-ab6c-634de2be6377)
 ![버튼_리셋(마우스)](https://github.com/user-attachments/assets/c6e32709-bb35-49c0-b524-4a1c866ca410)
