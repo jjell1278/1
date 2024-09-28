@@ -25,5 +25,3 @@ https://github.com/user-attachments/assets/611af006-708c-4c6a-9d6e-67b8b2d1cc609
 ![버튼_리셋](https://github.com/user-attachments/assets/9f2bfeed-fada-4aee-a6da-df1ed9038f59)
 ![버튼_세트(마우스)](https://github.com/user-attachments/assets/58c37996-bf9f-4fe8-a066-e2e37932b682)
 
-
-![꽃2](https://github.com/user-attachments/assets/63573cdc-7f14-410b-8fd5-643442e54e22)
