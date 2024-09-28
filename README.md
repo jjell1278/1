@@ -10,4 +10,4 @@
 ![신발1](https://github.com/user-attachments/assets/be66d10a-4708-42ed-b552-beaef17e8a53)
 ![신발2](https://github.com/user-attachments/assets/f30d7715-d493-4264-b3a9-b184ccea2ac4)
 ![머리1](https://github.com/user-attachments/assets/120ff86e-e926-4de3-bf90-22f65d49af93)
-![배경](https://github.com/user-attachments/assets/904a8a9d-68ae-43e9-a4e8-dee74df2f38b)
+![배경](https://github.com/user-attachments/assets/3a1dd126-058c-41ab-95b3-f0d6e0a090bd)
