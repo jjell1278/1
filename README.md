@@ -1,5 +1,5 @@
+![배경(2인)](https://github.com/user-attachments/assets/b3d684d3-24ab-4ca1-a206-196dbe9f6196)
 
-![배경(2인)](https://github.com/user-attachments/assets/70bc1e23-fed6-42e6-871b-71d9cda03c93)
 ![배경](https://github.com/user-attachments/assets/e5c66fca-a375-4309-8e0a-55ba5cdb7b73)
 
 ![오-하의2](https://github.com/user-attachments/assets/5f2f7c4c-0b45-4c28-a0f1-7fb69e3b61d0)
