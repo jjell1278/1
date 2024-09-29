@@ -1,6 +1,6 @@
 
-![배경](https://github.com/user-attachments/assets/29fdfb36-0444-44bd-8bf3-0e5656d617f2)
-![배경(2인)](https://github.com/user-attachments/assets/b5d98e12-fb9e-462a-b1fd-6d1d0d0fc5a9)
+![배경(2인)](https://github.com/user-attachments/assets/70bc1e23-fed6-42e6-871b-71d9cda03c93)
+![배경](https://github.com/user-attachments/assets/e5c66fca-a375-4309-8e0a-55ba5cdb7b73)
 
 ![오-하의2](https://github.com/user-attachments/assets/5f2f7c4c-0b45-4c28-a0f1-7fb69e3b61d0)
 ![오-하의1](https://github.com/user-attachments/assets/747be859-2ebc-473e-92c4-234c9acfb497)
