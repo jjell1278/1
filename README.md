@@ -35,7 +35,8 @@
 ![오-코트](https://github.com/user-attachments/assets/e3d121cc-245e-4efb-8528-18562ba57786)
 ![왼-코트](https://github.com/user-attachments/assets/a9944740-f426-4353-add7-3b7fe5af7fbc)
 
-![왼-머리2](https://github.com/user-attachments/assets/1b6f20cb-a46f-4b34-a713-58abeb4f564d)
+
+![왼-머리2](https://github.com/user-attachments/assets/b1102e1e-c7d2-4727-a9f4-2e5bc60cae52)
 
 ![왼-머리1](https://github.com/user-attachments/assets/82a4ee5d-ba06-4717-a693-4b0521f97e08)
 
