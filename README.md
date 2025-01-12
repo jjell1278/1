@@ -1,3 +1,5 @@
+![일러스트](https://github.com/user-attachments/assets/debaf2e7-fd70-42e8-ab6b-229676ce56a2)
+
 ![배경(2인)](https://github.com/user-attachments/assets/b3d684d3-24ab-4ca1-a206-196dbe9f6196)
 
 ![배경](https://github.com/user-attachments/assets/e5c66fca-a375-4309-8e0a-55ba5cdb7b73)
